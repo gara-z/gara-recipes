@@ -1,4 +1,4 @@
-Granola:
+#Granola:
 
 2 cups rolled oats, old-fashioned style
 2 cups rye flakes
@@ -14,7 +14,7 @@ Granola:
 
 Optional mix-in: 200 g dried fruit or berries. Add to mixture above after it has been roasted and cooled.
 
-Instructions:
+##Instructions:
 Preheat the oven to 350 F (175 C) and line a rimmed baking sheet with parchment paper.
 
 Combine the dry ingredients in a large mixing bowl. Mix the honey together with the liquids.
@@ -26,7 +26,7 @@ Spread the mixture in an even layer onto the prepared pan. Bake until golden, fo
 Transfer mixture and parchment paper onto a cooling rack and let cool completely. Once cooled, mix in dried fruit or berries (optional). Store the granola in an airtight container in a cool, dark place.
 
 
-Notes
+##Notes
 
 Use freshly pressed apple juice for best flavor.
 Almonds: cut into halves, or three pieces if on the bigger side (approx 2 cm).
