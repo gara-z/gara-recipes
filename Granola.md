@@ -12,7 +12,8 @@
 2 Tbsp + 2 tsp canola oil  
 1/2 + 1/3 cup apple juice  
 
-Optional mix-in: 200 g dried fruit or berries. Add to mixture above after it has been roasted and cooled.
+### Optional mix-in
+200 g dried fruit or berries. Add to mixture above after it has been roasted and cooled.
 
 ## Instructions:
 1. Preheat the oven to 350 F (175 C) and line a rimmed baking sheet with parchment paper.
