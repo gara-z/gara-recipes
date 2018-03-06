@@ -34,10 +34,10 @@ DIRECTIONS, CAKE
 1. Once the cake has completely cooled, assemble the cake by adding the chocolate buttercream frosting between each layer and frosting the outside.  
 
 DIRECTIONS, FROSTING  
-Add all ingredients to a stand mixer and blend on low for 30 seconds. Once the ingredients have started to combine, slowly increase the speed to high and blend for one minute.  
-To thin the consistency (if needed) add more milk, or to thicken add more powdered sugar.  
+1. Add all ingredients to a stand mixer and blend on low for 30 seconds. Once the ingredients have started to combine, slowly increase the speed to high and blend for one minute.  
+1. To thin the consistency (if needed) add more milk, or to thicken add more powdered sugar.  
 
-## Lisa's Tips
+## Notes
 My baking time of 28-30 minutes is based on a standard oven. I’d recommend checking the cakes earlier, at 23-24 minutes if your oven tends to cook fast or if you’re using a convection oven.
 You can also use two 9-inch cake pans for a two-layer cake (the layers will be thicker). Bake them for approximately 35 minutes, or until a toothpick comes out clean.
 Remember to make sure your cake is 100% cool before frosting. Even the slightest amount of internal heat in the layers will cause the frosting to melt.
