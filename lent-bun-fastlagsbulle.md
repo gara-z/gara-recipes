@@ -1,7 +1,7 @@
 # Swedish lent buns - Fastlagbullar (Semlor)
 
 Dough (yields approx 24 buns):  
-1 tsp active dry yeast (25 g fresh yeast)  
+2 tsp active dry yeast (25 g fresh yeast)  
 250 g milk  
 250 g water  
 1 egg  
@@ -67,7 +67,7 @@ Serving:
 
 ## Notes
 Adopted from [Pain de Martin-En God Semla](http://paindemartin.se/?p=2073) (buns) and [Mitt Kök-Roy Fares Semlor](https://mittkok.expressen.se/recept/semlor-roy-fares/) (filling)  
-25 g fresh yeast corresponds to approx 2 tsp dry yeast. In this recipe 1 tsp dry active yeast is used, but you may need to increase the amount if your dough is proofing very slowly.  
+25 g fresh yeast corresponds to approx 2 tsp dry yeast. You may need to adjust the amount depending on how quickly or slowly your dough is proofing.  
 Use whole cardamom seeds and grind them in a mortar (or electric mill) just before use. This gives the freshest fragrance and flavor.  
 Freeze buns that will not be eaten the same day. They hold about one day in room temperature before starting to become dry.  
 Any almond filling left over can be frozen and kept in freezer about two weeks.
