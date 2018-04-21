@@ -1,16 +1,16 @@
 # Granola:
 
-2 cups rolled oats, old-fashioned style  
-2 cups rye flakes  
+215 g (2 cups) rolled oats, old-fashioned style  
+215 g (2 cups) rye flakes  
 65 g flaxseeds  
 120 g pumpkin seeds  
 35 g coconut flakes  
 1 tsp salt  
-60 g raw almonds  
-50 g raw hazelnuts  
+50 g raw almonds  
+45 g raw hazelnuts  
 30 g raw pecan halves  
-85 g honey, runny  
-2 Tbsp + 2 tsp canola oil, or other neutral plant oil   
+120 g honey, runny  
+40 ml (2 Tbsp + 2 tsp) canola oil, or other neutral plant oil   
 200 g (200 ml) apple juice  
 
 ### Optional mix-in
