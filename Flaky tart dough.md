@@ -1,4 +1,5 @@
-# Flaky tart dough (2 9- or 10-inch tarts or pie shells)
+# Flaky tart dough  
+(two 9- or 10-inch tarts or pie shells)
 
 ### Ingredients  
 1 tsp (5 ml) salt  
