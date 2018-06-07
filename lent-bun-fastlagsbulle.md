@@ -31,11 +31,11 @@ Follow the instructions on the yeast package to activate it.
 Warm the milk and water until finger-warm, not warm nor cold to the touch, and put aside.  
 Combine ⅔ of the flour with the remaining dry ingredients.  
 Pour the milk mixture into a bowl of a stand mixer and add the activated yeast.  
-Add the flour mixture and the egg, and mix on low speed. Add the butter cut into thin slices while the mixer is running. When the butter seems incorporated into the mixture, add the remaining flour.  
+Add the flour mixture and the egg, and mix on low speed. Add the butter, cut into thin slices, while the mixer is running. When the butter seems incorporated into the mixture, add the remaining flour.  
 When the mixture has come together into an even mass, increase the speed until medium and mix for another few minutes. The dough should start coming clean away from the sides of the bowl, look glossy, and feel elastic. This will take approx 10 mins in total.
 
 1. Transfer the dough onto a floured surface and fold it into a package. (If you mixed the dough by hand, don’t worry too much if the dough isn’t completely smooth, it’ll improve after the first rest).  
-Put the package back into the bowl, cover with plastic wrap, and let rest for two hours at room temperature. Alternatively, let the dough rest in the fridge overnight (up to 10 hours).
+Put the package back into the bowl, cover with plastic wrap, and let rest for approx two hours at room temperature. Alternatively, let the dough rest in the fridge overnight (up to 10 hours).
 
 1. By now, the dough should have proofed notably during the rest.  
 Transfer dough onto a floured surface and flatten it out a little with your hands. If you let the dough rest in the fridge overnight, take it out about one hour before starting working with it.  
@@ -61,7 +61,7 @@ Filling:
 
 Serving:  
 1. Pour the cream into a mixing bowl and add enough sugar to have it lightly sweetened. Whip the cream to soft peaks but hard enough to hold their shape and fill a piping bag (fitted with a star tip) with the cream.
-1. Generously swirl the cream on top the almond filling and around the top of the bun.
+1. Generously swirl the cream on top of the almond filling and around the top of the bun.
 1. Press the lid lightly and carefully onto the cream swirl.
 1. Using a fine-mesh tea strainer, dust the top of the assembled bun with powdered sugar and serve immediately.
 
@@ -70,7 +70,7 @@ Adopted from [Pain de Martin-En God Semla](http://paindemartin.se/?p=2073) (buns
 25 g fresh yeast corresponds to approx 2 tsp dry yeast. You may need to adjust the amount depending on how quickly or slowly your dough is proofing.  
 Use whole cardamom seeds and grind them in a mortar (or electric mill) just before use. This gives the freshest fragrance and flavor.  
 Freeze buns that will not be eaten the same day. They hold about one day in room temperature before starting to become dry.  
-Any almond filling left over can be frozen and kept in freezer about two weeks.
+Any almond filling left over can be frozen and kept in the freezer for about two weeks.
 
 
 
