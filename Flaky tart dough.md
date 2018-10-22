@@ -12,25 +12,25 @@
 ### Directions  
 Measure up the flour in a bowl and put it into the freezer while you prepare the other ingredients.
 Add salt to a container filled with cold water and stir to dissolve the salt. Put the container into the fridge.
-Measure the butter and cut into cubes, approx 1-inch pieces. Put the butter into the freezer for approx 7-10 mins. 
-Check in on the butter after 7 mins and if still soft, leave it in for another couple of minutes. It should not be completely 
-frozen and hard.
+Measure the butter and cut into cubes, approx 1-inch pieces. Put the butter into the freezer for approx 7 mins. 
+If butter is still soft, leave it in for another couple of minutes. It should not be completely 
+frozen and hard.  
 
-When the butter has cooled off, start making the dough. Transfer the water into the freezer and set a timer for 8 mins. Put the
-cold flour in a mixing bowl and scatter the butter over the flour. Cut the butter into the flour until the mixtuyre forms large
-crumbs and some of the butter is still in pieces the size of peas. Drizzle the the water mixture over and stir and toss with a 
-fork until the dough comes together in a shaggy mass. Gently mix until the dough comes together into a ball but is not completely
-smooth. You should be able to see some butter chunks.
+When the butter has chilled, start making the dough. Transfer the water into the freezer and set a timer for 8 mins. Put the cold flour in a mixing bowl and scatter the butter over. Toss the butter with the flour and make sure the cubes are all covered with flour, then squish each cube flat.  
 
-On a lightly floured work surface, divide the dough into 2 equal balls and shape each ball into a disk 1 inch thick. Wrap well in
-plastic wrap and chill for at least 2 hours or up to overnight. The dough can be kept in the freezer for up to 2 weeks.
+Drizzle the chilled water mixture over flour-butter mix, and stir and toss with a fork until the dough comes together in a shaggy mass. Press the dough mixture together to get it a little more cohesive but make sure not to knead it. You should be able to see butter chunks.  
 
-Roll out appr 1/8 inch thick.
+Transfer dough mass onto a work surface, and shape into a small rectangular shape. Dust the rolling pin and roll out the dough rectangle with 2-3 rolls keeping a rectangular shape. With a bench scraper, scrape and fold the top, bottom, and sides together again to the original size. Place any loose pieces on top and reroll. Dust workspace lightly if needed. Repeat rolling and folding twice until the dough becomes more smooth and cohesive. Avoid to overwork the dough, it should appear marbled with butter.  
 
-Bake at 375 F. If the tart/galette/pie is browning too quickly, reduce the oven to 350 F or place aluminium foli on top.
+Divide the dough into 2 equal pieces and shape each piece into a disk, approx 1 inch thick. Cover dough in plastic wrap and chill well in the fridge for about 1 hour before rolling it out. The dough can be kept in the fridge overnight or in the freezer for up to 2 weeks.  
+
+Roll out appr 1/8 inch thick.  
+
+Bake at 375 F. If the tart/galette/pie is browning too quickly, reduce the oven to 350 F or place aluminium foli on top.  
 
 Let cool at a wire rack.  
-
+  
+  
 ## II: Old-fashined flaky pie dough  
 
 ### Ingredients  
@@ -63,4 +63,5 @@ Ratios: 3:2:1, flour:butter:water
 II: Old-Fashioned Flaky Pie Dough Recipe, [Serious Eats](https://www.seriouseats.com/recipes/2016/06/old-fashioned-flaky-pie-dough-recipe.html), Stella Parks  
 Ratios: 2:2:1, flour:butter:water (1:1:0.5)  
 
+For consistent results, use a scale and weigh the ingredients.  
 When room temperature exceeds 74°F, kitchen equipment and pantry staples will act as a heat source to the butter, creating a sticky dough. If it’s warm in your kitchen, you can manage dough temperature by: refrigerating ingredients and utensils, cut the butter in chunkier pieces, chill the workspace countertop with bags filled with ice and water, know the dough and its temperature (aim to keep it at 65°F (18°C).  
