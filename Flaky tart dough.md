@@ -16,7 +16,7 @@ Measure the butter and cut into cubes, approx 1-inch pieces. Put the butter into
 If butter is still soft, leave it in for another couple of minutes. It should not be completely 
 frozen and hard.  
 
-When the butter has chilled, start making the dough. Transfer the water into the freezer and set a timer for 8 mins. Put the cold flour in a mixing bowl and scatter the butter over. Toss the butter with the flour and make sure the cubes are all covered with flour, then squish each cube flat.  
+When the butter has chilled, start making the dough. Transfer the water into the freezer and set a timer for 8 mins. While the water is being chilled, put the cold flour in a mixing bowl and scatter the butter over. Toss the butter with the flour and make sure the cubes are all covered with flour, then squish each cube flat.  
 
 Drizzle the chilled water mixture over flour-butter mix, and stir and toss with a fork until the dough comes together in a shaggy mass. Press the dough mixture together to get it a little more cohesive but make sure not to knead it. You should be able to see butter chunks.  
 
