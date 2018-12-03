@@ -26,9 +26,9 @@ Divide the dough into 2 equal pieces and shape each piece into a disk, approx 1 
 
 Roll out appr 1/8 inch thick.  
 
-Bake at 375 F. If the tart/galette/pie is browning too quickly, reduce the oven to 350 F or place aluminium foli on top.  
+Bake at 375 F. If the tart/galette/pie is browning too quickly, reduce the oven to 350 F or place aluminium foil on top.  
 
-Let cool at a wire rack.  
+Let cool on a wire rack.  
   
   
 ## II: Old-fashined flaky pie dough  
