@@ -39,15 +39,15 @@ Put the package back into the bowl, cover with plastic wrap, and let rest for ap
 
 1. By now, the dough should have proofed notably during the rest.  
 Transfer dough onto a floured surface and flatten it out a little with your hands. If you let the dough rest in the fridge overnight, take it out about one hour before starting working with it.  
-Cut the dough into strips and then into pieces, each about 60 grams. Weigh the first few ones to get an idea of how big the pieces need to be.  
+Cut the dough into strips and then into pieces, each about 60 grams (alt. 75 grams). Weigh the first few ones to get an idea of how big the pieces need to be.  
 Shape each piece into a ball. As you form the balls, put them, well spaced, onto baking sheets lined with parchment paper.  
 Cover the sheets with plastic wrap and let the balls proof until doubled in size, approx two hours.
 
-1. Preheat the oven to 435 F (225 C) at least 30 mins before you want to start baking.
+1. Preheat the oven to 435 F (225 C) (or 415 F /210 C for 75 grams buns) at least 30 mins before you want to start baking.
 
 1. Make the egg wash by whisking the egg with a pinch of salt and 1 tsp cold water until a darkly yellow and runny mixture.  
 Lightly and carefully brush the egg wash onto the rolls.  
-Place one sheet at the time into the oven (middle) and bake until deep golden brown color on top and bottom, approx 10-15 minutes. If they start getting color quickly, cover with a piece of aluminum foil until fully baked.  
+Place one sheet at the time into the oven (middle) and bake until deep golden brown color on top and bottom, approx 10-15 minutes (apprx 12 minutes for the 75 grams buns). If they start getting color quickly, cover with a piece of aluminum foil until fully baked.  
 Remove the buns from the oven and place them on a wire rack to cool. Cover with a kitchen towel while cooling.  
 When buns are cooled, transfer them into a plastic ziplock bag to avoid drying too fast. If you are not going to eat them the same day, freeze them.
 
