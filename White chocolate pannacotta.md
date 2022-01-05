@@ -10,10 +10,9 @@
 
 ### Instructions  
 Chop the white chocolate into small pieces, about the size of peas, and place it in a heatproof bowl.  
-Combine the rest of the ingredients in a saucepan with thick bottom. Once the mixture comes to a boil, start the timer and let the mixture simmer/boil for 3-4 
-minutes before removing the saucepan from the heat.  
-Pour the mixture over the chopped white chocolate, and slowly stir with a heat-resistant spatula until the chocolate is completely melted.
-Pour the panna cotta batter into the glass/dish you want to serve in. Let it steam of for 20 mins or so, cover with plastic wrap, and then put it into the fridge
+Combine the rest of the ingredients in a saucepan (preferebaly stanless steel). Once the mixture comes to a boil, start the timer and let the mixture simmer/boil for 3-4 minutes before removing the saucepan from the heat. Stir a few times while the mixture is simmering/boiling.  
+Pour the mixture over the chopped white chocolate, and slowly stir with a heat-resistant spatula until the chocolate is completely melted.  
+Pour the panna cotta batter into the glass/dish you want to serve in. Let it cool off for 20 mins or so, cover with plastic wrap, and then put it into the fridge
 to set for at least 1 hour, preferably over the night.  
 
 
@@ -25,15 +24,13 @@ to set for at least 1 hour, preferably over the night.
 25 grams of butter, cut into smaller pieces  
 
 ### Instructions  
-Prepare a pot with water just enough that when placing a heatproof bowl above, the bowl is not in contact with the water. Bring the water to a boil. Prepare another 
-bowl with a fine-mesh strainer (optional).
-Combine the sugar, yolks, and fuit juice in the heatproof bowl. Lower the heat of the stove so the water isn't rumbling and place the bowl over the pot. 
-Double-check that the bowl isn't in contact with the boiling water.  
-Whisk the mixture constantly to prevent the eggs to clot. It will take a hile before the mixture starts to thicken, but once it does it can go fast.  
+Prepare a pot with water just enough that when placing a heatproof bowl above, the bowl is not in contact with the water. Bring the water to a boil. Prepare another bowl with a fine-mesh strainer (optional).  
+Combine the sugar, yolks, and fuit juice in the heatproof bowl. Lower the heat of the stove so the water isn't rumbling and place the bowl over the pot. Double-check that the bowl isn't in contact with the boiling water.  
+Whisk the mixture constantly to prevent the eggs to clot. It will take a while before the mixture starts to thicken, but once it does it can go fast.  
 Once the mixture has thickened enough that the whisk leaves traces in the mixture, remove the bowl from the pot.  
 Stir in the butter, piece by piece, and keep stirring unil the buter has melted and is fully incorporated.  
 Optional: Once the butter has been incorporated into the curd, pour it trough the fine-mesh strainer to remove any pieces of coagulated eggyolk. If the mesh is 
-very fine, you may have to press with a spatula to help the curd through the strainer.
+very fine, you may have to press with a spatula to help the curd through the strainer.  
 Cover the curd with plastic wrap and make sure to place the wrap on the surface of the curd to prevent a thick skin forming. Alternatively, pour the curd into a 
 piping bag if you'd like to pipe it on top of the pannacotta. Place the curd into the fridge to set and chill.  
 
