@@ -1,6 +1,6 @@
 # Mazariner / Mazarin tartlets, 10-12 pieces  
   
-## Ingredients  
+## Ingredients:
 
 ### Dough:  
 150 g butter, cold and cut into cubes  
@@ -29,6 +29,7 @@ Pears or apple-pears: 1-2 medium pears, 0.5-1 tsp coarsely ground cardamom seeds
 2 Tbsp powdered sugar  
 
 ## Instructions  
+.....  
 
 ## Notes  
 Recipe adopted from Hilda Kirkoff and Köket, https://www.koket.se/a-ppelmazariner-med-vaniljmascarpone  
