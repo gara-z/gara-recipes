@@ -42,11 +42,10 @@ Just before serving, assemble the pannacotta, curd*, and any additional toppings
 (**) Optional toppings: toasted and chopped nuts, caramellized nuts, coconut crisp (recipe to be added)
 
 ## Notes
-Frozen passion fruit juice can be found in bigger grocery stores or in Mexican/Latin American grocery stores (I used frozen found at Mi Terra, San Pablo Ave, 
-Berkeley). If using fresh passion fruit, one fruit yields about 2 Tbsp inlcuding seeds and about 1 Tbsp strained juice.  
+Passion fruit juice: Frozen passion fruit juice can be found in bigger grocery stores or in Mexican/Latin American grocery stores (I used frozen found at Mi Terra, San Pablo Ave, Berkeley, which has quite tart but strong flavor). If using fresh passion fruit, one fruit yields about 2 Tbsp inlcuding seeds and about 1  Tbsp strained juice.  
 
-I used the Telephone brand agar agar poweder, found in the Asian food aisle in the grocery store. I boiled the pannacotta mixture for exactly 4 minutes (from the 
-first boil until removing it from the heat), poured about 100 ml serving size and let it set for approx 24 hours in the fridge: the pannacotta was still a bit  
-runny in the middle. Maybe let boil for approx 4.5-5 mins total to have it set all through.  
+Agar agar: I used the Telephone brand agar agar poweder, found in the Asian food aisle in the grocery store. I boiled the pannacotta mixture for exactly 4 minutes (from the first boil until removing it from the heat), poured about 100 ml serving size and let it set for approx 24 hours in the fridge: the pannacotta was still a bit  runny in the middle. Maybe let boil for approx 4.5-5 mins total to have it set all through.  
+
+White chocolate: Use high-quality chocolate for this. I could only find Divine and Lindt brands; Divine was superior in creaminess and flavor but probably not the superior quality out there. These were very sweet and next time try to use less sugar. Brands to try: Valrhona, Cacao Barry, Green & Black's.  
 
 Recipe adopted from [Camilla Hamid](https://mykitchenstories.se/vit-choklad-pannacotta-med-passionsfrukt-kokosflarn/), and [Brinken bakar](https://brinkenbakar.se/enkel-pannacotta-och-passionsfruktdessert-i-glas/).
