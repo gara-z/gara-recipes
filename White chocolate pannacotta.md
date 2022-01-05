@@ -1,21 +1,14 @@
 # White chocolate pannacotta with passion fruit curd  
   
-## Ingredients  
-Pannacotta:  
+## Pannacotta:
+### Ingredients  
 200 g white chocolate  
 90 g (100ml) graulated sugar  
 1.5 quarter tsp (2 ml) agar agar powder  
 600 ml heavy whipping cream  
 1.5 tsp vanilla paste  
 
-Passion fruit curd:  
-135 g granulated sugar  
-6 egg yolks  
-150 ml juice from passion fruits (fresh or frozen)  
-25 grams of butter, cut into smaller pieces  
-  
-## Instructions  
-Pannacotta:  
+### Instructions  
 Chop the white chocolate into small pieces, about the size of peas, and place it in a heatproof bowl.  
 Combine the rest of the ingredients in a saucepan with thick bottom. Once the mixture comes to a boil, start the timer and let the mixture simmer/boil for 3-4 
 minutes before removing the saucepan from the heat.  
@@ -23,7 +16,15 @@ Pour the mixture over the chopped white chocolate, and slowly stir with a heat-r
 Pour the panna cotta batter into the glass/dish you want to serve in. Let it steam of for 20 mins or so, cover with plastic wrap, and then put it into the fridge
 to set for at least 1 hour, preferably over the night.  
 
-Passion fruit curd:  
+
+## Passion fruit curd:  
+### Ingredients  
+135 g granulated sugar  
+6 egg yolks  
+150 ml juice from passion fruits (fresh or frozen)  
+25 grams of butter, cut into smaller pieces  
+
+### Instructions  
 Prepare a pot with water just enough that when placing a heatproof bowl above, the bowl is not in contact with the water. Bring the water to a boil. Prepare another 
 bowl with a fine-mesh strainer (optional).
 Combine the sugar, yolks, and fuit juice in the heatproof bowl. Lower the heat of the stove so the water isn't rumbling and place the bowl over the pot. 
@@ -36,17 +37,18 @@ very fine, you may have to press with a spatula to help the curd through the str
 Cover the curd with plastic wrap and make sure to place the wrap on the surface of the curd to prevent a thick skin forming. Alternatively, pour the curd into a 
 piping bag if you'd like to pipe it on top of the pannacotta. Place the curd into the fridge to set and chill.  
 
+
 ## Assembly:  
 Just before serving, assemble the pannacotta, curd*, and any additional toppings (optional). If not piping the curd on top of the pannacotta, distribute the curd on 
 top of the pannacotta carefully with a spoon. Dig in!    
 
 *Instead of fruit curd, you can serve the pannacotta with fresh raspberries, whole or mashed and sweetened with some sugar, or other fresh berries and/or fruit.  
 
-### Notes
+
+## Notes
 Frozen passion fruit juice can be found in bigger grocery stores or in Mexican/Latin American grocery stores (I used frozen found at Mi Terra, San Pablo Ave, 
 Berkeley). If using fresh passion fruit, one fruit yields about 2 Tbsp inlcuding seeds and about 1 Tbsp strained juice.  
 
 I used the Telephone brand agar agar poweder, found in the Asian food aisle in the grocery store. I boiled the pannacotta mixture for exactly 4 minutes (from the 
 first boil until removing it from the heat), poured about 100 ml serving size and let it set for approx 24 hours in the fridge: the pannacotta was still a bit  
-runny in the middle. Maybe let boil for approx 4.5-5 mins total to have it set all through.
-4.5-5 mins next time to have it set completely
+runny in the middle. Maybe let boil for approx 4.5-5 mins total to have it set all through.  
