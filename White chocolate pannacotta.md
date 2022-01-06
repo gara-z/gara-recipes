@@ -21,7 +21,7 @@ to set for at least 1 hour, preferably over the night.
 135 g granulated sugar  
 6 egg yolks  
 150 ml juice from passion fruits (fresh or frozen)  
-25 grams of butter, cut into smaller pieces  
+25 g unsalted butter, cut into small pieces  
 
 ### Instructions  
 Prepare a pot with water just enough that when placing a heatproof bowl above, the bowl is not in contact with the water. Bring the water to a boil. Prepare another bowl with a fine-mesh strainer (optional).  
@@ -46,6 +46,6 @@ Passion fruit juice: Frozen passion fruit juice can be found in bigger grocery s
 
 Agar agar: I used the Telephone brand agar agar poweder, found in the Asian food aisle in the grocery store. I boiled the pannacotta mixture for exactly 4 minutes (from the first boil until removing it from the heat), poured about 100 ml serving size and let it set for approx 24 hours in the fridge: the pannacotta was still a bit  runny in the middle. Maybe let boil for approx 4.5-5 mins total to have it set all through.  
 
-White chocolate: Use high-quality chocolate for this. I could only find Divine and Lindt brands; Divine was superior in creaminess and flavor but probably not the superior quality out there. These were very sweet and next time try to use less sugar. Brands to try: Valrhona, Cacao Barry, Green & Black's.  
+White chocolate: Use high-quality chocolate for this. I could only find Divine and Lindt brands; Divine was superior in creaminess and flavor but probably not the superior quality out there. These were also very sweet. Brands to try: Valrhona, Cacao Barry, Green & Black's.  
 
 Recipe adopted from [Camilla Hamid](https://mykitchenstories.se/vit-choklad-pannacotta-med-passionsfrukt-kokosflarn/), and [Brinken bakar](https://brinkenbakar.se/enkel-pannacotta-och-passionsfruktdessert-i-glas/).
