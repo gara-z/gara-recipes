@@ -3,15 +3,15 @@
 ## Pannacotta:
 ### Ingredients  
 200 g white chocolate  
-90 g (100ml) graulated sugar  
+90 g (100 ml) granulated sugar  
 1.5 quarter tsp (2 ml) agar agar powder  
 600 ml heavy whipping cream  
 1.5 tsp vanilla paste  
 
 ### Instructions  
 Chop the white chocolate into small pieces, about the size of peas, and place it in a heatproof bowl.  
-Combine the rest of the ingredients in a saucepan (preferebaly stanless steel). Once the mixture comes to a boil, start the timer and let the mixture simmer/boil for 3-4 minutes before removing the saucepan from the heat. Stir a few times while the mixture is simmering/boiling.  
-Pour the mixture over the chopped white chocolate, and slowly stir with a heat-resistant spatula until the chocolate is completely melted.  
+Combine the rest of the ingredients in a saucepan (preferably stanless steel). Once the mixture comes to a boil, start a timer and let the mixture simmer/boil for 3-4 minutes before removing the saucepan from the heat. Stir a few times while the mixture is simmering/boiling.  
+Once mixture is removed from the heat, pour it over the chopped white chocolate and slowly stir the mixture with a heat-resistant spatula until the chocolate has completely melted.  
 Pour the panna cotta batter into the glass/dish you want to serve in. Let it cool off for 20 mins or so, cover with plastic wrap, and then put it into the fridge
 to set for at least 1 hour, preferably over the night.  
 
@@ -19,24 +19,24 @@ to set for at least 1 hour, preferably over the night.
 ## Passion fruit curd:  
 ### Ingredients  
 135 g granulated sugar  
-6 egg yolks  
+6 egg yolks (from large eggs)  
 150 ml juice from passion fruit (fresh or frozen)  
 25 g unsalted butter, cut into small pieces  
 
 ### Instructions  
-Prepare a pot with water just enough that when placing a heatproof bowl above, the bowl is not in contact with the water. Bring the water to a boil. Prepare another bowl with a fine-mesh strainer (optional).  
-Combine the sugar, yolks, and fuit juice in the heatproof bowl. Lower the heat of the stove so the water isn't rumbling and place the bowl over the pot. Double-check that the bowl isn't in contact with the boiling water.  
+Prepare a pot with water just enough that when placing a heatproof bowl on top, the bowl is not in contact with the water. Bring the water to a boil. Optional: Prepare another bowl with a fine-mesh strainer.  
+Combine the sugar, yolks, and fruit juice in the heatproof bowl. Lower the heat of the stove so the water isn't rumbling and place the bowl over the pot. Double-check that the bowl isn't in contact with the boiling water.  
 Whisk the mixture constantly to prevent the eggs to clot. It will take a while before the mixture starts to thicken, but once it does it can go fast.  
 Once the mixture has thickened enough that the whisk leaves traces in the mixture, remove the bowl from the pot.  
-Stir in the butter, piece by piece, and keep stirring unil the buter has melted and is fully incorporated.  
-Optional: Once the butter has been incorporated into the curd, pour it trough the fine-mesh strainer to remove any pieces of coagulated eggyolk. If the mesh is 
+Stir in the butter, piece by piece, and keep stirring unil the butter has melted and is fully incorporated.  
+Optional: Once the butter has been incorporated into the curd, pour it trough the fine-mesh strainer to remove any pieces of coagulated egg yolk. If the mesh is 
 very fine, you may have to press with a spatula to help the curd through the strainer.  
 Cover the curd with plastic wrap and make sure to place the wrap on the surface of the curd to prevent a thick skin forming. Alternatively, pour the curd into a 
 piping bag if you'd like to pipe it on top of the pannacotta. Place the curd into the fridge to set and chill.  
 
 
-## Assembly:  
-Just before serving, assemble the pannacotta, curd*, and any additional toppings** (optional). If not piping the curd on top of the pannacotta, distribute the curd on top of the pannacotta carefully with a spoon. Dig in!    
+## Serving:  
+Just before serving, assemble the pannacotta, curd*, and any additional toppings** (optional). If not piping the curd, distribute it carefully with a teaspoon on top of the pannacotta. Dig in!    
 
 (*) Instead of fruit curd, you can serve the pannacotta with fresh raspberries (whole or mashed and sweetened with some sugar), or other fresh berries and/or fruit.  
 (**) Optional toppings: toasted and chopped nuts, caramellized nuts, coconut crisp (recipe to be added)
