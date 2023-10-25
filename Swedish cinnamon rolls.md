@@ -1,5 +1,6 @@
 # Swedish cinnamon rolls  
-## Dough (yields approx 24 rolls):    
+## Ingredients
+### Dough (yields approx 24 rolls):    
 150 g unsalted butter at roomtemperature  
 2 tsp dry yeast  
 500 g whole milk (alternatively, 400 g whole milk + 100 g heavy cream)  
@@ -8,12 +9,16 @@
 1-2 tsp coarsely ground cardamom (from whole seeds) (optional)  
 1 tsp kosher salt, alernatively 1/2 tsp regular salt  
 850 g bread flour  
-## Filling:  
+### Filling:  
 150 g unsalted butter at roomtemperature  
 1 Tbsp golden syrup  
 1 tsp cornstarch  
 2 Tbsp ground cinnamon  
 40-50 g almond paste (optional)  
+### Egg wash:  
+1 egg
+splash of heavy cream or whole milk
+pinch of salt  
 ## Instructions:  
 This schedule describes mixing the dough in the evening, proofing the rolls in the fridge overnight, and baking them the next day.  
   
