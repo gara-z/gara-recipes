@@ -1,4 +1,4 @@
-# Granola:
+# Granola
 
 215 g (2 cups) rolled oats, old-fashioned style  
 215 g (2 cups) rye flakes  
@@ -40,8 +40,8 @@ Exchanging canola oil to coconut oil may require adjusted ratio of other ingredi
 
 2018-01-30: Used coconut oil instead of canola oil, and the apple juice flavor didn't come through as promintent as I remember from previous attempts. Could be that the coconut oil takes over and supresses the juice flavor. Use unrefined coconut oil which is odorless and flavorless.
 
-1/3 cup + 1 Tbsp + 1 tsp flaxseeds
-1/3 cup + 1 Tbsp + 1 tsp oat bran
+1/3 cup + 1 Tbsp + 1 tsp flaxseeds  
+1/3 cup + 1 Tbsp + 1 tsp oat bran  
 1/2 + 1/3 cup pumpkin seeds  
 1/2 + 1/3 cup pumpkin seeds  
 1/3 cup + 1 Tbsp + 1 tsp desiccated coconut  
