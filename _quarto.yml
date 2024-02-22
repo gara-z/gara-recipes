@@ -18,6 +18,9 @@ book:
     - White-chocolate-pannacotta.md
   downloads: [pdf]
 
+resources:
+  - CNAME
+  
 format:
   html:
     theme: cosmo
