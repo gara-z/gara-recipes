@@ -4,7 +4,7 @@
 150 g unsalted butter at roomtemperature  
 2 tsp dry yeast  
 500 g whole milk (alternatively, 400 g whole milk + 100 g heavy cream)  
-1 egg at roomtemperature
+1 egg at roomtemperature  
 125 g granulated sugar  
 1-2 tsp coarsely ground cardamom (from whole seeds) (optional)  
 1 tsp kosher salt, alernatively 1/2 tsp regular salt  
@@ -23,14 +23,19 @@ pinch of salt
 This schedule describes mixing the dough in the evening, proofing the rolls in the fridge overnight, and baking them the next day.  
   
 Dough:  
-1. Grind the cardamom seeds about the size of coarsely ground black pepper, e.g. using a mortar and pestle.  
+1.  Grind the cardamom seeds about the size of coarsely ground black pepper, e.g. using a mortar and pestle.  
 Follow the instructions on the yeast package to activate it.  
 Slightly warm the milk (alt. milk + cream) just enough to take the cold from the fridge off (but not warm to the touch) and put aside.  
-Combine ⅔ of the flour with the remaining dry ingredients.  
+**Method I, without preferment:**  
+Combine approx ⅔ of the flour with the remaining dry ingredients.  
 Pour the milk mixture into a bowl of a stand mixer and add the activated yeast.  
 Add the the egg and then the flour mixture, and mix on low speed. Add the butter piece by peice (tablespoon-sized) while the mixer is running; wait until the butter is incorporated into the dough before adding the next piece. When all the butter looks incorporated into the mixture, add the remaining flour.  
-When the mixture has come together into an even mass, increase the speed until medium and mix for another few minutes. The dough should start coming clean away from the sides of the bowl, look glossy, and feel elastic. This will take approx 10 mins in total.
-
+When the mixture has come together into an even mass, increase the speed until medium and mix for another few minutes. The dough should start coming clean away from the sides of the bowl, look glossy, and feel elastic when it's ready. This will take approx 10 mins in total.  
+**Method II, with preferment:**  
+Combine approx ⅔ of the flour with the milk and activated yeast into a mixin gbowl to make the preferment.  
+Mix on low speed until the dough comes together smoothly but no elasticity developed, about 5-7 mins.  
+Let the preferment rest about 45-60 mins.
+Once rested, add the remaining ingredients to the dough and mix on low speed first, then increase to medium. The dough should start coming clean away from the sides of the bowl, look glossy, and feel elastic when it's ready.  
 1. Transfer the dough onto a slightly floured surface and fold it into a package. (If you mixed the dough by hand, don’t worry too much if the dough isn’t completely smooth, it’ll improve after the first rest).  
 Put the package back into the bowl, cover with plastic wrap, and let rest for approx 1 - 1 1/2 hours at room temperature.  
   
