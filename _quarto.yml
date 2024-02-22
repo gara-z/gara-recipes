@@ -1,0 +1,27 @@
+project:
+  type: book
+
+book:
+  title: "Recipes"
+  author: "Gara Zejnic"
+  date: "last-modified"
+  chapters:
+    - index.qmd
+    - Almond-paste.md
+    - Easy-pizza-dough.md
+    - Flaky-tart-dough.md
+    - granola.md
+    - lent-bun-fastlagsbulle.md
+    - Mazarin-tartlets.md
+    - paleo-chocolate-cake.md
+    - Swedish-cinnamon-rolls.md
+    - White-chocolate-pannacotta.md
+
+format:
+  html:
+    theme: cosmo
+  pdf:
+    documentclass: scrreprt
+
+
+
