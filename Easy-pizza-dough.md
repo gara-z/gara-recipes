@@ -1,4 +1,5 @@
-## 4 pizzas  
+# Easy pizza dough (4 pizzas)
+
 8 g (1 1/2 tsp) dry active yeast  
 400 g (400 ml) cold water  
 25 g (2 Tbsp) olive oil  
