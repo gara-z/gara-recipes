@@ -16,6 +16,8 @@ book:
     - paleo-chocolate-cake.md
     - Swedish-cinnamon-rolls.md
     - White-chocolate-pannacotta.md
+    
+downloads: [pdf]
 
 format:
   html:
