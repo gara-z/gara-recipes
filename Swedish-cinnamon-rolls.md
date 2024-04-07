@@ -56,18 +56,19 @@ Twist a strip of dough and twirl it around your index and middle fingers into a 
 Spray the rolls lightly with water and cover the sheet with plastic wrap (or just a towel) and let the rolls rest and proof unitl doubled in size, approx 2-3 hours, even up to 4 hours, at room temperature. The proofing time depends on the room temperature; 20C/68F temp may require up to 4 hours proofing time. The rolls should be notably puffed but with some spring left at touch (this may require a few iterations to figure out what works best at your house and with your oven).  
 Optional for room-temp bulk proofed dough: The proofing of the shaped rolls should have started before the rolls are placed into the fridge for overnight proofing. Cover the baking sheets with towels and place in the fridge for 8-10 hours.  
 
-1. For final proof in fridge: Take out the sheets from the fridge. Let the rolls proof at room temperature between approx 1 1/2 - 3 hours, depending on how much they proofed in the fridge and the room temperature.  
+1. For final proof in fridge: Take out the sheets from the fridge. Let the rolls proof at room temperature between approx 1 1/2 - 3 1/2 hours, depending on how much they proofed in the fridge and the room temperature.  
 Preheat the oven to 425 F at least 40 minutes before baking and prepare the egg wash.  
 Whisk the egg, cream and salt until smooth and a bit runny texture.  
  
 1. To know when the rools are ready to bake, they should feel notably puffy when poked.  
 Lightly and carefully brush the egg wash onto the rolls. Sprinkle with pearlsugar.    
-Place one sheet at the time into the oven (middle) and bake until deep golden brown color on top and bottom, approx 10-13 minutes. If they start getting color quickly, cover with a piece of aluminum foil until fully baked. Make sure to look after them close to the end of the baking as they can turn dark brown or burn really fast once they start getting some color.  
+Place one sheet at the time into the oven (middle) and bake until deep golden brown color on top and bottom, approx 10-13 minutes*. If they start getting color quickly, cover with a piece of aluminum foil until fully baked. Make sure to look after them close to the end of the baking as they can turn dark brown or burn really fast once they start getting some color.  
   
 1. Remove the buns from the oven and place them on a wire rack to cool. Cover with a kitchen towel while cooling.  
 When buns have cooled, transfer them into a paper bag and then a plastic zip lock bag to avoid the rolls drying too quickly.  
   
-  
+*For 76 g rolls, approx 12-13 mins in 435F + 1-2 mins on sheet outside oven before removing them from the sheet.
+   
 ## Notes:
 This recipe uses a smaller amount of yeast, which require long proofing times.  
 Use whole cardamom seeds and grind them in a mortar (or electric mill) just before use. This gives the freshest fragrance and flavor.  
